@@ -1,1 +1,0 @@
-# jarquist.github.io
